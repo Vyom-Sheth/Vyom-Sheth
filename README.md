@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Vyom-Sheth
+- 👀 I’m interested in many things
+- 🌱 I’m currently learning Robotics and music
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me shethvyom0810@gmail.com
+- 😄 Pronouns: He/Him
